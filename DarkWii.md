@@ -1,9 +1,0 @@
-I AM NOT RESPONSIBLE FOR ANY BRICKS KEEP THAT IN MIND 
-
-THIS IS ALSO A WIP VERSION
-
-
-
-
-aesth1.github.io/darkwii.mym
-
